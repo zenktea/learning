@@ -1,2 +1,4 @@
 # learning
-Learning
+Belajar
+untuk panjang
+hl
